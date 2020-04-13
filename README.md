@@ -3,7 +3,7 @@ Visit for original context: https://www.facebook.com/groups/Geolibertarian/?mult
 
 A wise and sensible government would recognize that this problem derives from lack of opportunity to work and earn. It can be solved by the use of a tax system which encourages the proper use of land and which stops penalizing everything and everybody else. Such a tax system was proposed almost 140 years ago by Henry George, a (North) American economist, but somehow most macro-economists seem never to have heard of him, in common with a whole lot of other experts. (I would guess that they don't want to know, which is worse!) In “Progress and Poverty” 1879, Henry George proposed a single tax on land values without other kinds of tax on produce, services, capital gains, etc. This regime of land value tax (LVT) has 17 features which benefit almost everyone in the economy, except for landlords and banks, who/which do nothing productive and wrongly find that land dominance has its own reward.
 
-###17 Aspects of LVT Affecting Government, Land Owners, Communities and Ethics
+### 17 Aspects of LVT Affecting Government, Land Owners, Communities and Ethics
 
 **Four Aspects for Government:**
 1. LVT, adds to the national income as do all other taxation systems, but it can and should replace them.
