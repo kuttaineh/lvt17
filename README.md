@@ -8,22 +8,22 @@ A wise and sensible government would recognize that this problem derives from la
 1. LVT, adds to the national income as do all other taxation systems, but it can and should replace them.
 2. The cost of collecting the LVT is less than for all of the production-related taxes—then tax avoidance becomes impossible because the sites being taxed are visible to all.
 3. Consumers pay less for their purchases due to lower production costs (see below). This creates greater satisfaction with the government’s management of national affairs.
-4. The national economy stabilizes—it no longer experiences the 18 year business boom/bust cycle, due to periodic speculation in land values (see below).
+4. The national economy stabilizes—it no longer experiences the 18 year business boom/bust cycle, due to periodic speculation in land values (see below).[/list]
 
-[b]Six Aspects Affecting Land Owners:[/b]
+[list][b]Six Aspects Affecting Land Owners:[/b]
 5. LVT is progressive--owners of the most potentially productive sites pay the most tax.
 6. The land owner pays his LVT regardless of how his site is used. When fully developed, a large proportion of the ground-rent from tenants becomes the LVT, with the result that land has less sales- value but a significant "rental"-value (even when it is not being used).
 7. LVT stops the speculation in land prices and any withholding of land from proper use is not worthwhile.
 8. The introduction of LVT initially reduces the sales price of sites, (even though their rental value can still grow over long-term use). As more sites become available, the competition for them becomes less fierce so entrepreneurs are more active.
 9. With LVT, land owners are unable to pass the tax on to their tenants as rent hikes, due to the reduced competition for access to the additional sites that come into use.
-10. With LVT, land prices will initially drop. Speculators in land values will want to foreclose on their mortgages and withdraw their money for reinvestment. Therefore LVT should be introduced gradually, to allow these speculators sufficient time to transfer their money to company-shares etc., and simultaneously to meet the increased demand for produce (see below).
+10. With LVT, land prices will initially drop. Speculators in land values will want to foreclose on their mortgages and withdraw their money for reinvestment. Therefore LVT should be introduced gradually, to allow these speculators sufficient time to transfer their money to company-shares etc., and simultaneously to meet the increased demand for produce (see below).[/list]
 
-[b]Three Aspects Regarding Communities:[/b]
+[list][b]Three Aspects Regarding Communities:[/b]
 11. With LVT, there is an incentive to use land for production or residence, rather than it being unused.
 12. With LVT, greater working opportunities exist due to cheaper land and a greater number of available sites. Consumer goods become cheaper too, because entrepreneurs have less difficulty in starting-up their businesses and because they pay less ground-rent--demand grows, unemployment decreases.
-13. Investment money is withdrawn from land and placed in durable capital goods. This means more advances in technology and cheaper goods too.
+13. Investment money is withdrawn from land and placed in durable capital goods. This means more advances in technology and cheaper goods too.[/list]
 
-[b]Four Aspects About Ethics:[/b]
+[list][b]Four Aspects About Ethics:[/b]
 14. The collection of taxes from productive effort and commerce is socially unjust. LVT replaces this extortion by gathering the surplus rental income, which comes without any exertion from the land owner or by the banks--LVT is a natural system of national income-gathering.
 15. Bribery and corruption on information about land cease. Before, this was due to the leaking of news of municipal plans for housing and industrial development, causing shock-waves in local land prices (and municipal workers' and lawyers’ bank balances).
 16. The improved and proper use of the more central land reduces the environmental damage due to a) unused sites being dumping-grounds, and b) the smaller amount of fossil-fuel use, when traveling between home and workplace.
