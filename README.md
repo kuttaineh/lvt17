@@ -1,5 +1,4 @@
 **From David Chester**
-Visit for original context: https://www.facebook.com/groups/Geolibertarian/?multi_permalinks=2694146890695778&comment_id=2695637303880070&notif_id=1586714931522751&notif_t=feedback_reaction_generic
 
 Our present complicated system for taxation is unfair and has many faults. The biggest problem is to arrange it on a socially just basis. Many companies employ their workers in various ways and pay them diversely. Since these companies are registered in different countries for a number of categories, the determination the criterion for a just tax system becomes impossible, particularly if based on a fair measure of human work-activity. So why try when there is a better means available, which is really a true and socially just method?
 
@@ -41,3 +40,5 @@ A wise and sensible government would recognize that this problem derives from la
 2. Bribery and corruption on information about land cease. Before, this was due to the leaking of news of municipal plans for housing and industrial development, causing shock-waves in local land prices (and municipal workers' and lawyers’ bank balances).
 3. The improved and proper use of the more central land reduces the environmental damage due to a) unused sites being dumping-grounds, and b) the smaller amount of fossil-fuel use, when traveling between home and workplace.
 4. Because the LVT eliminates the advantage that landlords currently hold over our society, LVT provides a greater equality of opportunity to earn a living. Entrepreneurs can operate in a natural way-- to provide more jobs. Then earnings will correspond to the value that the labor puts into the product or service. Consequently, after LVT has been properly introduced it will eliminate poverty and improve business ethics.
+
+Visit for original context: https://www.facebook.com/groups/Geolibertarian/?multi_permalinks=2694146890695778&comment_id=2695637303880070&notif_id=1586714931522751&notif_t=feedback_reaction_generic
